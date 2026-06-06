@@ -1,3 +1,3 @@
 # Njrat
 
-rera Njrat 2018
+rare Njrat 2018
